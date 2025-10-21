@@ -18,4 +18,10 @@
 ## 🖼️ Mockup
 - [Mockup visual para presentación de producto](https://www.canva.com/design/DAG2aFHe7zI/iqhcMfQG4AegESoiUffcyg/edit?utm_content=DAG2aFHe7zI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
+> 🌟 **Diseños originales**  
+> ✍️ *María Regina Pretelín Ricárdez*  
+>  
+> 💫 Inspirados para conectar, no para copiar.  
+> 🤝 Comparte con respeto, crea con intención.  
+> © 2025 María Regina Pretelín Ricárdez
 
